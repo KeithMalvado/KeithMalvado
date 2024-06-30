@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **ComingSoon**
 
-- 📫 How to reach me akhmadfauzisetyawan@gmail.com
+- 📫 Emailku akhmadfauzisetyawan@gmail.com
 
 - ⚡ Fun fact **ComingSoon**
 
