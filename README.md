@@ -8,15 +8,15 @@
 
 - 🌱 Hoby? **GadaGilaAja**
 
-- 👯 Akun Utama Github? [Rahasia Perusahaan >//<](-)
+- 👯 Akun Utama Github? [Ea](-)
 
-- 🤝 Parterku? [Gada gada](-)
+- 🤝 Parterku? [**********](-)
 
-- 💬 Ask me about **ComingSoon**
+- 💬 Tanya? **ChatMe**
 
 - 📫 Emailku keithmalvadon@gmail.com
 
-- ⚡ Fun fact **ComingSoon**
+- ⚡ Berkelana **Bejier**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
