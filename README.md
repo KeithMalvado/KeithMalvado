@@ -12,7 +12,7 @@
 
 - 🤝 Parterku? [**********](-)
 
-- 💬 Tanya? **ChatMe**
+- 💬 Tanya? **Gada Gada**
 
 - 📫 Emailku keithmalvadon@gmail.com
 
