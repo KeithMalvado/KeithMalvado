@@ -1,20 +1,20 @@
 <h1 align="center">Welcome To My Profile KeithMalvado</h1>
-<h3 align="center">Save Me For My Self</h3>
+<h3 align="center">Khusus Ngampus</h3>
 <img align="center" alt="Umaru" widhth="100" src=https://www.icegif.com/wp-content/uploads/2021/12/icegif-770.gif
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=keithmalvado&label=Profile%20views&color=0e75b6&style=flat" alt="keithmalvado" /> </p>
 
-- 🔭 I’m currently working on [ComingSoon](-)
+- 🔭 Bisa apa? [Bisa Gila](-)
 
-- 🌱 I’m currently learning **ComingSoon**
+- 🌱 Hoby? **GadaGilaAja**
 
-- 👯 I’m looking to collaborate on [ComingSoon](-)
+- 👯 Akun Utama Github? [Rahasia Perusahaan >//<](-)
 
-- 🤝 I’m looking for help with [ComingSoon](-)
+- 🤝 Parterku? [Gada gada](-)
 
 - 💬 Ask me about **ComingSoon**
 
-- 📫 Emailku akhmadfauzisetyawan@gmail.com
+- 📫 Emailku keithmalvadon@gmail.com
 
 - ⚡ Fun fact **ComingSoon**
 
