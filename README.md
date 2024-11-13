@@ -14,7 +14,7 @@
 
 - 💬 Tanya? **Gada Gada**
 
-- 📫 Emailku keithmalvadon@gmail.com
+- 📫 Email? keithmalvadon@gmail.com
 
 - ⚡ Berkelana **Bejier**
 
